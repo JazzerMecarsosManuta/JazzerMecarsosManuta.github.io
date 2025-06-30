@@ -152,13 +152,21 @@ Web Development: Building and managing websites, e-commerce apps.
 
 
 🌟 Soft Skills
+
 ✅ Adaptability
+
 ✅ Attention to Detail
+
 ✅ Multi-tasking
+
 ✅ Diligence
+
 ✅ Flexibility
+
 ✅ Critical Thinking
+
 ✅ Emotional Intelligence
+
 ✅ Time Management
 
 
