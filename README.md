@@ -1,7 +1,14 @@
 JAZZER M. MANUTA
-Tech-Savvy IT Graduate | Results-Driven & Adaptable
+
+
+Tech-Savvy IT Graduate | Results-Driven
+& Adaptable
+
 📍 Sabayle St., Iligan City, Philippines
+
 📞 +63 912 9155 891
+
+
 
 💼 Value Statement
 
